@@ -1,2 +1,0 @@
-# Richest-people
-Richest People
